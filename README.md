@@ -1,2 +1,6 @@
 # BuntaXOR
-60%??? FRL-like Keyboard with lots of macros or place to fit your artisans.
+60%??? FRL-like Keyboard.
+
+------
+Fell in love with TKL FRL - AND entered artisan keycao hell - so yeah - I wanna fit thes cute little guys all on my board. 
+![image] (
