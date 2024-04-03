@@ -32,6 +32,6 @@ boonta
 ##### Adjective
 bunta (not compareable)
 
-#### Australia 
+##### Use in Australia 
 crazy\
 out of conttrol
